@@ -1,7 +1,5 @@
 ### Opa :D
-
 *✧･ﾟ: *✧･ﾟ:.·:*¨ ¨*:·.: *✧･ﾟ:*✧･ﾟ
-
 ⚀ no momento tenho _15 anos_
 ⚁ sou estudante do 1° ano do ensino médio
 ⚂ adoro bichinhos ʕᴥ• ʔ☝
